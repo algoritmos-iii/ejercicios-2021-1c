@@ -1,1 +1,1 @@
-# ejercicio-2021-1c
+# ejercicios-2021-1c
